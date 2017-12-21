@@ -3,7 +3,7 @@ His wondrous melody to the sky
 It's so beautiful it's no wonder why,
 I sit and think of you
 
-In spring the crocus and the daffodil
+In spring the crocus and daffodil
 Towards the sun, their colours spill,
 Through all this glory, I shall still
 Lie here and think of you
